@@ -1,4 +1,4 @@
-👋 Hi, I’m @szz_sketch
+👋 Hi, I’m @Szz-sketch
 
 ## ✨ About Me | 关于我
 
