@@ -25,6 +25,7 @@
 
 ### 📧 How to reach me | 如何联系我
 
+- 🔐 shenyanbsoon@foxmail.com
 - 🔐 Feel free to reach out for collaboration or discussion!
 - 🔐 欢迎主动联系我，探讨合作与交流机会！
 
