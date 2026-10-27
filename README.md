@@ -27,7 +27,7 @@
 
 - 🔐 shenyanbsoon@foxmail.com
 
-- 🔐 https://szznext.com.cn
+- 🔐 https://zzlab-zhe.com.cn
 
 - 🔐 Feel free to reach out for collaboration or discussion!
 - 🔐 欢迎主动联系我，探讨合作与交流机会！
